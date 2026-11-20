@@ -14,6 +14,6 @@ M.S. candidate in IT Engineering at **SeoulTech** (Smart Media & Network Lab, ad
 
 **Languages:** Uzbek (native) · Korean (TOPIK 3) · English
 
-Looking for computer vision / 3D vision ML roles in Korea, available full-time from March 2027.
+Looking for computer vision / 3D vision ML roles in Korea, available to start as soon as possible.
 
 [LinkedIn](https://www.linkedin.com/in/abdulvosit-abduganiev-619764203)
